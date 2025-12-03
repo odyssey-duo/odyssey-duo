@@ -18,6 +18,6 @@ color my
 
 <div align="center">
 
-![](https://files.catbox.moe/zvsv7x.png)
+![](https://files.catbox.moe/ojow8t.png)
 
 </div>
