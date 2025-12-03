@@ -2,28 +2,22 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=beaverhollow&label=players&style=flat-square&color=30331c&base=23264)
+![](https://komarev.com/ghpvc/?username=beaverhollow&label=<3&style=flat-square&color=8688bb&base=23264)
 
 </div>
 
 <div align="center">
   
-sign
-[my ata](https://adminvirus.atabook.org/) !
+color my
+[tree](https://colormytree.me/2025/01KB89KCXA2H7QCE08BE393Z32) , ty !
 
 
-[strawpage](https://winendine.straw.page/)⠀[matching](https://ragebaiters.straw.page/)⠀[rentry](https://rentry.co/boytreat)⠀[pronouns.cc](https://pronouns.cc/@adminvirus) 
-
-</div>
-
-<div align="center">
-
-![helo](https://files.catbox.moe/khzo3l.png)
+[strawpage](https://winendine.straw.page/)⠀[rentry](https://rentry.co/boytreat)⠀[pronouns.cc](https://pronouns.cc/@adminvirus) 
 
 </div>
 
 <div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6ee6c3uiykzyf00n8qqgt3t8m&cover_image=true&theme=natemoo-re&show_offline=true&background_color=c3ab9e&interchange=true&bar_color=AAAAAA&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+![](https://files.catbox.moe/349j07.png)
 
 </div>
