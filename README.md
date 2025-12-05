@@ -12,7 +12,7 @@ color my
 [tree](https://colormytree.me/2025/01KB89KCXA2H7QCE08BE393Z32) , ty !
 
 
-[strawpage](https://winendine.straw.page/)⠀[rentry](https://rentry.co/fret)
+[directory](https://rentry.co/fret)
 
 </div>
 
