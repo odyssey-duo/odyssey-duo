@@ -8,9 +8,6 @@
 
 <div align="center">
   
-color my
-[tree](https://colormytree.me/2025/01KB89KCXA2H7QCE08BE393Z32) , ty !
-
 
 [directory](https://rentry.co/fret)
 
